@@ -5,13 +5,13 @@ Are you looking for the **Girl WhatsApp Group Indian** that is now trending and 
 ## Trending Indian Girl WhatsApp Groups
 
 ### [🔥] Viral Girls Only  
-[Join Now](https://chat.whatsapp.com/D2bs1vMQxH60IOnBIjfn8N)
+[Join Now](https://otieu.com/4/9386352)
 
 ### Intl Girl Vibes  
-[Join Now](https://chat.whatsapp.com/JpTbjLImGTtB6gwBUGZFPD)
+[Join Now](https://otieu.com/4/7720125)
 
 ### Single Girl Zone 💌  
-[Join Now](https://chat.whatsapp.com/E6qH0s7zFsJ4sOvehudUna)
+[Join Now](https://otieu.com/4/7748692)
 
 ### Cute Queens [IND] 💕  
 [Join Now](https://chat.whatsapp.com/LevxhcV9ra3CcOJqFWCGxf)
